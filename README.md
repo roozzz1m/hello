@@ -1,2 +1,2 @@
 # Hi Friend!
-This god code created for you. I am sure that you will like this code))
+This code of God is created for you. I'm sure you'll like it))
